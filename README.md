@@ -1,7 +1,19 @@
-![8f50afbb115b9b64486805cedb0f548b](https://github.com/J3STERCHEST3R/J3STERCHEST3R/assets/143673837/95c6c28e-9b6a-4f6d-96af-b1113440796f)
-- Hey, Hello! This is a mini intro :]
-- Please call me Jester, I'd appreciate it !!
-- I rlly love jesters and idkhow a lot
-- afk or barely interacting most of the time <3
-- please whisper to interact, WILL miss your message at times!
-- That is all you need to know
+> # Too Lazy To Make A Proper Introduction Here :-[
+> <img width="1258" height="876" alt="Blissful" src="https://github.com/user-attachments/assets/202ff15c-0d1a-49cd-a96c-877afd5faf69" />
+# <p align="center">Hallo Hi !! Welcome hii :]</p>
+
+<p align="center">! All areas where you could find me !</p>
+<sup>  Hey, before reading these up next please note; I am no longer that active on ponytown nor that social (under circumstanses) and also may not be in these areas </sup>
+<p align="center">You can always find me near spawn , docks or bakery (SAFE)</p>
+<p align="center">Or ! You can find me near Docks (18+)</p>
+<p align="center">Please approach carefully, again, i'm very shy</p>
+<p align="center">I don't know how to be that social, srry ..</p>
+
+### <p align="center">Meow Meow Meow Meow Meow Meow Meow Meow</p>
+<p align="center">You can approach me , sure.. I don't bite trust, but</p>
+<p align="center">just don't be weird, i will ignore you.</p>
+
+
+<img width="355" height="252" alt="MeWhenIRead" src="https://github.com/user-attachments/assets/e285cde5-9c75-444d-8ce4-48b251d43935" />   I like drawing by the by.. 
+
+I also love my boyfriend.. Hi! Hallo!! Hi bnnuy :black_cat: 🌷 <p align="right">Giggleshit</p>
