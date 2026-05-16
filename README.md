@@ -4,12 +4,12 @@
 
 <p align="center">! All areas where you could find me !</p>
 <sup>  Hey, before reading these up next please note; I am no longer that active on ponytown nor that social (under circumstanses) and also may not be in these areas </sup>
-<p align="center">You can always find me near spawn , docks or bakery (SAFE)</p>
-<p align="center">Or ! You can find me near Docks (18+)</p>
-<p align="center">Please approach carefully, again, i'm very shy</p>
+<p align="center">You can find me near spawn , docks or bakery (Safe Server)</p>
+<p align="center">Or ! You can find me near Docks (18+ Server)</p>
+<p align="center">Please interact with me carefully, again, i'm very shy</p>
 <p align="center">I don't know how to be that social, srry ..</p>
 
-### <p align="center">Meow Meow Meow Meow Meow Meow Meow Meow</p>
+### <p align="center"> ^ Meow Meow Meow Meow Meow Meow Meow Meow Meow Meow Meow ^ </p>
 <p align="center">You can approach me , sure.. I don't bite trust, but</p>
 <p align="center">just don't be weird, i will ignore you.</p>
 
