@@ -1,19 +1,21 @@
-> # Too Lazy To Make A Proper Introduction Here :-[
-> <img width="1258" height="876" alt="Blissful" src="https://github.com/user-attachments/assets/202ff15c-0d1a-49cd-a96c-877afd5faf69" />
-# <p align="center">Hallo Hi !! Welcome hii :]</p>
+> # <p align="center"> Too Lazy To Make A Proper Introduction Here :-[ </p>
+> <p align="center"> <img width="600" height="650" alt="azu error window" src="https://github.com/user-attachments/assets/d482fa15-f607-4ead-9f2e-47b40a449197" /> </p>
+# <p align="center"> Hello Hii!! Welcome Haii :] </p>
 
-<p align="center">! All areas where you could find me !</p>
-<sup>  Hey, before reading these up next please note; I am no longer that active on ponytown nor that social (under circumstanses) and also may not be in these areas </sup>
-<p align="center">You can find me near spawn , docks or bakery (Safe Server)</p>
-<p align="center">Or ! You can find me near Docks (18+ Server)</p>
-<p align="center">Please interact with me carefully, again, i'm very shy</p>
-<p align="center">I don't know how to be that social, srry ..</p>
+<p align="center"> Hi, I am mostly afk (offtab) doing my own things </p>
+<sup> <p align="center"> Due to no longer being as active like I used to be, do expect me to not be online as much or be approachable, thank you and sorry ! </p> </sup>
+<p align="center"> ──────────────────────── ⋆⋅☆⋅⋆ ──────────────────────── </p>
+<p align="center"> Please interact with me carefully if you are going to talk to me !! I'd appreciate it. </p>
+<p align="center">I am not that social + going through something mentally - </p>
+<p align="center"> But you can find me around these areas separately :D! </p>
+<p align="center"> SAFE SERVER (ENG #1) : Bakery, Docks and Spawn
+<p align="center"> 18+ SERVER (ENG) : Docks </p>
+<p align="center"> Again, don't be weird towards me, I will ignore you or hide you. okay? ok. </p>
+<p align="center"> ──────────────────────── ⋆⋅☆⋅⋆ ──────────────────────── </p>
 
 ### <p align="center"> ^ Meow Meow Meow Meow Meow Meow Meow Meow Meow Meow Meow ^ </p>
-<p align="center">You can approach me , sure.. I don't bite trust, but</p>
-<p align="center">just don't be weird, i will ignore you.</p>
+> <p align="center"> <img width="355" height="252" alt="MeWhenIRead" src="https://github.com/user-attachments/assets/6d4feda3-9439-4d34-8da6-a6a0b6704e85" /> </p>
 
-
-<img width="355" height="252" alt="MeWhenIRead" src="https://github.com/user-attachments/assets/e285cde5-9c75-444d-8ce4-48b251d43935" />   I like drawing by the by.. 
-
-I also love my boyfriend.. Hi! Hallo!! Hi bnnuy :black_cat: 🌷 <p align="right">Giggleshit</p>
+<p align="center" > As I said in general, I am mostly here with my boyfriend most of the time, sometimes alone for fun (making skins) </p>
+<p align="center"> or with friends, you can approach me yeah, I don't bite.. </p>
+<p align="center"> <img width="120" height="120" alt="zer" src="https://github.com/user-attachments/assets/a72627b2-c26a-4ad3-808c-002d635db68b" /> </p>
