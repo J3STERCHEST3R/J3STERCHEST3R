@@ -17,6 +17,6 @@
 ### <p align="center"> ^ Meow Meow Meow Meow Meow Meow Meow Meow Meow Meow Meow ^ </p>
 > <p align="center"> <img width="355" height="252" alt="MeWhenIRead" src="https://github.com/user-attachments/assets/6d4feda3-9439-4d34-8da6-a6a0b6704e85" /> </p>
 
-<p align="center" > As I said in general, I am mostly here with my boyfriend most of the time, sometimes alone for fun (making skins) </p>
+<p align="center" > As I said in general, I am mostly here with my boyfriend most of the time, sometimes alone for fun (making skins, afk) </p>
 <p align="center"> or with friends, you can approach me yeah, I don't bite.. </p>
 <p align="center"> <img width="120" height="120" alt="zer" src="https://github.com/user-attachments/assets/a72627b2-c26a-4ad3-808c-002d635db68b" /> </p>
