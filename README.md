@@ -1,5 +1,6 @@
 > # <p align="center"> Too Lazy To Make A Proper Introduction Here :-[ </p>
-> <p align="center"> <img width="600" height="650" alt="azu error window" src="https://github.com/user-attachments/assets/d482fa15-f607-4ead-9f2e-47b40a449197" /> </p>
+> <p align="center"> <img width="524" height="439" alt="AltButLikeYeahINeedThat" src="https://github.com/user-attachments/assets/ec3e7028-a36c-47a0-855b-928270b015d6" /> </p>
+
 # <p align="center"> Hello Hii!! Welcome Haii :] </p>
 
 <p align="center"> Hi, I am mostly afk (offtab) doing my own things </p>
