@@ -1,5 +1,5 @@
-> # <p align="center"> Too Lazy To Make A Proper Introduction Here :-[ </p>
-> <p align="center"> <img width="524" height="439" alt="AltButLikeYeahINeedThat" src="https://github.com/user-attachments/assets/ec3e7028-a36c-47a0-855b-928270b015d6" /> </p>
+ # <p align="center"> Too Lazy To Make A Proper Introduction Here :-[ </p>
+ <p align="center"> <img width="524" height="439" alt="AltButLikeYeahINeedThat" src="https://github.com/user-attachments/assets/ec3e7028-a36c-47a0-855b-928270b015d6" /> </p>
 
 # <p align="center"> Hello Hii!! Welcome Haii :] </p>
 
@@ -13,10 +13,3 @@
 <p align="center"> 18+ SERVER (ENG) : Docks </p>
 <p align="center"> Again, don't be weird towards me, I will ignore you or hide you. okay? ok. </p>
 <p align="center"> ──────────────────────── ⋆⋅☆⋅⋆ ──────────────────────── </p>
-
-### <p align="center"> ^ Meow Meow Meow Meow Meow Meow Meow Meow Meow Meow Meow ^ </p>
-> <p align="center"> <img width="355" height="252" alt="MeWhenIRead" src="https://github.com/user-attachments/assets/6d4feda3-9439-4d34-8da6-a6a0b6704e85" /> </p>
-
-<p align="center" > As I said in general, I am mostly here with my boyfriend most of the time, sometimes alone for fun (making skins, afk) </p>
-<p align="center"> or with friends, you can approach me yeah, I don't bite.. </p>
-<p align="center"> <img width="120" height="120" alt="zer" src="https://github.com/user-attachments/assets/a72627b2-c26a-4ad3-808c-002d635db68b" /> </p>
