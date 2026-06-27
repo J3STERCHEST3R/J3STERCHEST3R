@@ -9,7 +9,7 @@
 <p align="center"> Please interact with me carefully if you are going to talk to me !! I'd appreciate it. </p>
 <p align="center">I am not that social + going through something mentally - </p>
 <p align="center"> But you can find me around these areas separately :D! </p>
-<p align="center"> SAFE SERVER (ENG #1) : Bakery, Docks and Spawn
+<p align="center"> SAFE SERVER (ENG #1 & #2) : Bakery, Docks and Spawn
 <p align="center"> 18+ SERVER (ENG) : Docks / Nearby Docks </p>
 <p align="center"> Again, don't be weird towards me, I will ignore you or hide you. okay? ok. </p>
 <p align="center"> ──────────────────────── ⋆⋅☆⋅⋆ ──────────────────────── </p>
