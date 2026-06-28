@@ -12,4 +12,5 @@
 <p align="center"> SAFE SERVER (ENG #1 & #2) : Bakery, Docks and Spawn
 <p align="center"> 18+ SERVER (ENG) : Docks / Nearby Docks </p>
 <p align="center"> Again, don't be weird towards me, I will ignore you or hide you. okay? ok. </p>
+<p align="center"> SInce I took a hiatus from pt I may be around but offtab doing my things okay </p>
 <p align="center"> ──────────────────────── ⋆⋅☆⋅⋆ ──────────────────────── </p>
